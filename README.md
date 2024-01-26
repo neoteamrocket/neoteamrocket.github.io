@@ -1,1 +1,1 @@
-Pagina no terminada y sin escalabilida del poderosisimo Team Rocket 
+Pagina no terminada y sin escalabilidad del poderosisimo Team Rocket 
